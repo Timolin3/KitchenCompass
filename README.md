@@ -102,7 +102,7 @@
 ## 📬 Kontakt & Support
 
 Bei Fragen, Feedback oder Feature-Wünschen:  
-**E-Mail:** timo@kikuehlschrank.de  
+**E-Mail:** link-timo@web.de  
 **Website:** [kikuehlschrank.jimdofree.com](https://kikuehlschrank.jimdofree.com)
 
 ---
